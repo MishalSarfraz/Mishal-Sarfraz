@@ -1,4 +1,4 @@
-# Mishal
+
 
 **AI-Powered Web Developer & Automation Specialist**
 Web developer, digital marketer, and AI tools specialist based in Faisalabad, Pakistan.
